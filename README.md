@@ -1,0 +1,1 @@
+# Repozitar pro domaci ukoly do predmetu Vedecke Vypocty v 
